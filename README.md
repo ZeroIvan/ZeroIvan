@@ -1,0 +1,8 @@
+- 👋 Hi, I’m @ZeroIvan
+- 👀 I’m interested in обама хуй
+- 🌱 I’m currently learning как трахаться
+- 💞️ I’m looking to collaborate on Порнхаб
+- 📫 How to reach me Стать ОБЭМЭ
+- А ещё я ГЕНИУС
+- У меня БЛЭК ПЭНСИЛ
+- Умею глубоко СОСАТЬ
